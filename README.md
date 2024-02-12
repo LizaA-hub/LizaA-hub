@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some game project
 - 📫 How to reach me : lizzie0941 on discord
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: No I'm not related to Kakashi Hatake lol
+- ⚡ Fun fact: I have a blind cat 🐈
 
 <!---
 LizaA-hub/LizaA-hub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
